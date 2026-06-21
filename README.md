@@ -4,4 +4,7 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Jersey+15&weight=500&duration=16500&pause=1&color=000000&center=true&vCenter=true&multiline=true&repeat=false&width=700&height=100&lines=*+Anyone%2C+if+you're+there...+thank+you.)](https://git.io/typing-svg)
 
+| <img width="400" height="400" alt="New Project - 2026-06-21T032520 227" src="https://github.com/user-attachments/assets/0e5935ee-06b1-4733-935f-02d2c6b62b7c" /> | Hello!  ‎   ‎    You can call me Em or whatever you please  ‎:-) <br>  <br>𖦏 ‎    I enjoy lots of different media and <br> I really love making new friends online! <br> <br>𖦏 ‎    My main interests are Ultrakill & Deltarune <br> currently. I also enjoy Undertale, Hollow Knight, <br> Minecraft, Stardew Valley, Among Us, and more!|
+|-------|--------|
+
 <img width="1500" height="314" alt="tumblr_524d1b96add71d3d1543c24d01bd545c_cdb3a31d_2048 (2)" src="https://github.com/user-attachments/assets/4215a883-a5ac-4dec-8824-4ae2127e5ca9" />
